@@ -1,3 +1,3 @@
 # Genatron-Twelve
-A Green Two litre, Four point 
-Two Kilowatt, children's lunchbox container sized, Davidson Manifest Energy Function Harvester. 
+A White Two litre, Four point 
+Two Kilowatt, shoebox sized sized, Davidson Manifest Energy Function Harvester. 
